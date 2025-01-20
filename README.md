@@ -84,7 +84,6 @@ The project will actively support sustainable rug production, ensuring eco-frien
 - **Twitter:** https://x.com/soul_rug
 - **Discord:** https://discord.gg/anFXX3qF6V
 - **Telegram:** https://t.me/Rugsoulcommunity
-- 
 ---
 
 ### Rug Soul: Weaving Tradition into the Future 🌟
